@@ -1,0 +1,2 @@
+# notes
+catatan gw
